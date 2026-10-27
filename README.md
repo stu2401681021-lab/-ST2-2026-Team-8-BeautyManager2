@@ -1,0 +1,1 @@
+# -ST2-2026-Team-8-BeautyManager2
